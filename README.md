@@ -1,1 +1,1 @@
-![Alt text](peter-griffin-dancing.gif)
+![Alt text](city.webp)
